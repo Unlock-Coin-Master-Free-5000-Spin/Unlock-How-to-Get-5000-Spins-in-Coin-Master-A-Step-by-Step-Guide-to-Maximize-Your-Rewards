@@ -2,7 +2,7 @@
 
 Are you a Coin Master player looking for ways to maximize your gameplay and get thousands of spins for free? You've come to the right place! In this article, we’ll unlock the secrets to getting 5000 spins in Coin Master and boost your chances of winning big. But before we dive in, here’s an exclusive **free offer** that could take your Coin Master experience to the next level—keep reading to find out how you can claim it!
 
-### [👉CLICK HERE TO GET NOW FREE](https://jackmarkjr.github.io/spins/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
 
 ### Why Spins Matter in Coin Master?
 
